@@ -1,6 +1,6 @@
 # ANOMALYFYED
 
-[![Discord](https://img.shields.io/badge/Discord-Anomalyfyed-5865F2?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/users/1162921414597296188)
+[![Discord](https://img.shields.io/badge/Discord-zero.blah-5865F2?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/users/1162921414597296188)
 
 Hello and welcome to my GitHub profile!
 
