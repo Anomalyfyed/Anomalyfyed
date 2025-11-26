@@ -5,8 +5,11 @@
 Hello and welcome to my GitHub profile!
 
 My Name is **Anomalyfyed**, and I’m currently working on Roblox projects.  
+
 My Commissions are: **CLOSED**
+
 I Love Bocchi The Rock!
+
 I Work in/for: TB:R 2 and Sparkling Studios
 
 I am Demisexual and Trans
