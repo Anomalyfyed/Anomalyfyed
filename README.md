@@ -4,12 +4,12 @@
 
 Hello and welcome to my GitHub profile!
 
-My name is **Anomalyfyed**, and I’m currently working on Roblox projects.  
-My commissions are: **CLOSED**
+My Name is **Anomalyfyed**, and I’m currently working on Roblox projects.  
+My Commissions are: **CLOSED**
+I Love Bocchi The Rock!
+I Work in/for: TB:R 2 and Sparkling Studios
 
-Working In / For:
-TBR: 2 (Tower Battles Reimagined 2);
-Sparkling Studios
+I am Demisexual and Trans
 
 **Pronouns**: Any
 
